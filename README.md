@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **malaussenapsn@gmail.com**
 
-- ⚡ Fun fact **I was a Cook and even owned a restaurant! I also am fluent in Italian, so parliamo di opportunità bevendo un espresso?**
+- ⚡ Fun fact: **I was a Cook and even owned a restaurant! I also am fluent in Italian, so parliamo di opportunità bevendo un espresso?**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
