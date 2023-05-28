@@ -1,6 +1,6 @@
 
 
-<h1 align="center">Hi 👋, I'm Stefano</h1>
+<h1 align="center">Saluti 👋, I'm Stefano</h1>
 <h3 align="center">A passionate fullstack developer student from Brazil</h3>
 
 - 🔭 I’m currently open to work **remotely or in loco in Belo Horizonte**
