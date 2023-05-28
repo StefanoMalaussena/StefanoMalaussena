@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **malaussenapsn@gmail.com**
 
-- ⚡ Fun fact: **I was a Cook and even owned a restaurant! I also am fluent in Italian, so parliamo di opportunità bevendo un espresso?**
+- <img src="https://github.com/StefanoMalaussena/StefanoMalaussena/assets/112636325/f078b897-7d13-482e-aa69-0b9b648e87eb" width="30" height="30">Fun fact: **I used to work as a Cook and even owned a restaurant! I also am fluent in Italian, so parliamo di opportunità bevendo un espresso?** 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
